@@ -1,1 +1,1 @@
-Game dev, programmer, 3D artist
+Game developer, 3D artist
